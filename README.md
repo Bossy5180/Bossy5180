@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Bossy5180
 - 👀 I’m interested in interacting with mindful intelligent individuals.
-- 🌱 I’m currently learning how to not be confused with technolog.
+- 🌱 I’m currently learning how to not be confused with technology.
 - 💞️ I’m looking to collaborate on positive vibes only.
 - 📫 How to reach me ...
 
